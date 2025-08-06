@@ -4,4 +4,4 @@
 注意：新主线QQ群已经关闭，如有需要请加官方群736250242。
 This is the new story of Solarmax3 Player's Own Edition! Welcome to play! This homemade is free, and all paid downloads are pirated.
 This self-made is based on S3 a test adaptation,You need to disconnect the network to enter,If you don't want to disconnect the network,You can hang up and wait for it to enter automatically。
-The new main line is S3's longest history, the largest volume, the most excellent self-made, there are currently 30 chapters of the main line, 12 chapters of the theme, 3 chapters of PVP, 2 chapters of cooperation, welcome to play, if you have any questions or bugs, please give feedback in time.
+The new main line is S3's longest history, the largest volume, the most excellent self-made, there are currently 40 chapters of the main line, 18 chapters of the theme, 3 chapters of PVP, 2 chapters of cooperation, welcome to play, if you have any questions or bugs, please give feedback in time.
